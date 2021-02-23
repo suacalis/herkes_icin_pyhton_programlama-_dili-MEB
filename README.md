@@ -1,0 +1,1 @@
+# herkes_i-in_pyhton_programlama_dili
